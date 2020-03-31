@@ -11,4 +11,4 @@ Well on the off chance someone reads this years after this post, we've are curre
 
 Since I'm stuck at home with my day consisting of doing my thesis and my other courses, I thought why not try making a personal website?
 
-So to the reader who dares ventures and reads this, I wish you well and hope you enjoy your stay :)!
+So to the reader who dares ventures and reads this, I wish you well and hope you enjoy your stay :)
